@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Narsimha Reddy
+- 👋 Hi, I’m @Narsimha Reddy..
 reach me @ narsimha5967@gmail.com
 
 <!---
